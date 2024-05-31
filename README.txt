@@ -12,7 +12,7 @@ I'm responsible for conceptualizing, designing, and iterating on products to mee
 ⌄
 ⌄
 ⌄
-3+ Years of Experience in UI/UX Design
+3+ Years of Experience in UX/UI Design
 ⌄
 ⌄
 ⌄
